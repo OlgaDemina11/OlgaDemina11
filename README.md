@@ -2,7 +2,7 @@
 - 👀 I’m interested in box
 - 🌱 I’m currently learning boxscool
 - 💞️ I’m looking to collaborate on kiss
-- 📫 How to reach me v dome 523 po ulice Huy sosi
+- 📫 How to reach me pismom na adress dome 523 po ulice Huy sosi
 
 <!---
 OlgaDemina11/OlgaDemina11 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
